@@ -1,4 +1,0 @@
-gshs
-gsjs
-hssh
-ssjj
